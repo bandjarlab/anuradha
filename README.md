@@ -1,1 +1,1 @@
-Anurdha means source of knowledge.
+Anuradha means source of knowledge.
